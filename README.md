@@ -10,7 +10,7 @@ Three teams were created:
 
 
 ![](img/IMG_1319.JPG)
-
+Steve, Jorge, Joji, Armaghana, Shashid
 
 ![](img/IMG_1320.JPG)
 
