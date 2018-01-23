@@ -5,7 +5,7 @@ Repository for January 2018 Bootcamp
 Three teams were created:
 
 *  Polaris
-*  Data Punkis
+*  Data Punks
 *  ???
 
 
