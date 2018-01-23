@@ -8,7 +8,7 @@ Three teams were created:
 *  Data Punks
 *  Snowbird 
 
-
+Polaris
 ![](img/IMG_1319.JPG)
 Steve, Jorge, Joji, Armaghana, Shahid
 
