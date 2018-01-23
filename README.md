@@ -12,7 +12,6 @@ Polaris
 ![](img/IMG_1319.JPG)
 Steve, Jorge, Joji, Armaghana, Shahid
 
-<br>
 Data Punks
 ![](img/IMG_1323.JPG)
 Septi, Subadip, Russell, Uri, Emmanuel
